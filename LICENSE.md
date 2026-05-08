@@ -1,4 +1,4 @@
-
+vip evade Script offers the most advanced evade Script, with instant win and auto-sell. Perfect for dominating any match.
 
 
 
